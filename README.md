@@ -2,7 +2,7 @@
 一对一即时通讯视频聊天定制化，联系
 微信：451569675
 
-![image](http://ichatcat.com/school/school.jpg)
+![image](http://ichatcat.com/school/wechat8.jpg)
 ![image](http://ichatcat.com/maoyin/shujuku02.png)
 ![image](http://ichatcat.com/maoyin/yewu2.png)
 ![image](http://ichatcat.com/maoyin/113.png)
